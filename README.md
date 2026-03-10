@@ -1,2 +1,2 @@
 # Insignias
-Voy a ganar muchas
+Voy a ganar muchas insignias
