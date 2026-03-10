@@ -1,2 +1,2 @@
 # Insignias
-La usaré para ganar insignias
+Voy a ganar muchas
